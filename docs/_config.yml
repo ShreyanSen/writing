@@ -16,7 +16,7 @@
 title: Leaves from the Vine
 email: shreyan.sen@alumni.duke.edu
 description: >- # this means to ignore newlines until "baseurl:"
-  poems and stories
+  lines, poems, and stories
 baseurl: "/writing" # the subpath of your site, e.g. /blog
 url: "https://shreyansen.github.io" # the base hostname & protocol for your site, e.g. http://example.com
 icon: /assets/images/icon-512.png
