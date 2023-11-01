@@ -5,7 +5,7 @@ category: shorts
 layout: post
 ---
 
-Like any other addict, I tried taking another hit. C was such a breath of fresh air and so unlike S. Sensible, cerebral, so good at asking questions she almost escapes your own. The right kind of woman to meet when you're finally tired of all your bullshit dreams.
+Like any other addict, I tried taking another hit. C was such a breath of fresh air and so unlike S. Sensible, cerebral, so good at asking questions in order to slyly escape your own. The right kind of woman to meet when you're finally tired of all your bullshit dreams.
 
 Being with S felt like one of those dreams. That's what you get with a woman so spiritual you worry she might have actually been dissociating the whole time. Love fated at first sight, an artifact of past lives she said, and jealousy just as old. Our fate involved a prophecy with three Leos, of which I was the second. The first asked to marry her a week into knowing her; she said that's just how devotees are, and I suggested that's just how some men are. On our second date she put a ring on the ring finger of my left hand; it was the snake ring of her lofi softcore cult, the same one she wore. You're supposed to wear it on only that finger, ostensibly so the copper could ground you when you get too spiritually high and float right out of your body. The cult probably doesn't mind that you get to feel married to The Guru. She warned me quite seriously that I'd be putting my health at risk if I wore it elsewhere, but that wasn't why I wore it there. I was enjoying a dream of my own. No harm in that, right?
 
