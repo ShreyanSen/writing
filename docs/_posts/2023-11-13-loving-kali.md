@@ -11,7 +11,7 @@ I'm staring at two leaves on two plants of the same species. They are the same s
 
 Black. Black accepts everything, it takes it all in. The true face of inclusion is a deep pitch black. You can find this inside you too. The place you can pour any emotion into, and it eats it all. I haven't figured out if this place is horrifying or the ultimate source of comfort. It's probably both. As wisdom deepens, things transform in ways pointless to anticipate. No doubt this will be true for the black hole within. 
 
-And what of the human face that rejects nothing? Does it come and go while I drink my tea? I wouldn't know.
+And what of the human face that rejects nothing? Linji's koan goes: "There is a true person of no rank who is always coming and going from the portals of your face." Does it come and go while I drink my tea? I wouldn't know. 
 
 Ever since I started at the beginning as a novice flute player, my mother sends me videos of little 11 year old flute prodigies which I leave unwatched. I hate those kids. Still can't stop comparing myself unfavorably to them, as long as it's my mother sending me the videos. That's how it always was growing up, with my mom pointing to other kids in the newspaper and never quite having to say "why can't you be like them?" 
 
