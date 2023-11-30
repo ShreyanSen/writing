@@ -23,7 +23,7 @@ cw: trauma, abuse, all that ouchie stuff
 <br/><br/>
 
 
-"Tell us about your experience," Jion said.  
+"Tell us about your experience," Jion said.
 
 "I felt like I broke through to something; real love for myself? It was amazing. What I experienced was like some kind of crazy ritual dance, some real dark alchemical inner realm yoga. The grounds of the ritual flow back in time unceasingly--"
 
@@ -55,7 +55,7 @@ Listening to this higher self was a mistake I'd already made last week. In the f
 
 "Come back."
 
-"Right. So, this time when I got upset at my mom, I revived the triggered feeling later in the day and allowed it to go where it needed to go. It grew fast into the seething flame I know and don't love. I allowed myself to go fully into expressing it without judging it. The anger had little to do with the situation and everything to do with thousands of situations that have come before. I took martial stances to express it with my body, punched and kicked and yelled. Viciousness arrived. Eventually I grabbed my wooden flute and I started swinging it, beating this imaginary parent figure with it. Yes, I felt, take the beating you stupid piece of shit! It cringed and crouched the same way I did the hundreds of times my parents beat me with a wooden ladle.
+"Right. So, this time when I got upset at my mom, I revived the triggered feeling later in the day and allowed it to go where it needed to go. It grew fast into the seething flame I know and don't love. I allowed myself to go fully into expressing it without judging it. The anger had little to do with the situation and everything to do with thousands of situations that have come before. I took martial stances to express it with my body, punched and kicked and yelled. Anger tightened into rage and viciousness arrived. On a mad impulse I grabbed my wooden flute and I started swinging it, beating this imaginary parent figure with it. Yes, take the beating, you stupid piece of shit! It cringed and crouched the same way I did the hundreds of times my parents beat me with a wooden ladle.
 
 The rage mixed with sorrow and the silent scream I felt in Butoh. WHY!? A scream of an enraged child who feels so hurt and betrayed. UNFAIR! What happens when our very source of love becomes what hurts us? STOP! How does a child understand this?
 
