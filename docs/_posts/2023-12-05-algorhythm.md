@@ -30,9 +30,11 @@ i understood the weaver even through my broken spanish. she spoke of weaving as 
 
 the point of so-called inner work is not to know yourself, it's to be yourself. we talk about self-knowledge as if we're some outsider who's going to hold that self-knowledge. if only i had self-knowledge, then i could manipulate myself and my conditions better to make that self happy or productive or beautiful or strong or worthy. no, not at all. you don't know that self and you never will, but you will know being it. is freedom really what you want? you really want to be someone who feels free to quit your job, sell everything, and move to oregon to start life over as a janitor? now there's real freedom. you couldn't do it because you already have an idea of who you are and it's probably someone else. sorry this bathroom is occupied.
 
-but when you're free you still probably won't do it--just for a different reason. you won't do it, but you could. you could in the sense that you could follow yourself anywhere. you're not always wondering if this is the right place for you, because you've learned to live so that wherever you go IS the right place. but it's not the place that makes it right. it's right because of how you arrived there. you arrived there by being yourself. this particular art is an improvisation that continues to slip dissonant notes into itself. thus have i heard: a zen master is one who makes mistake after mistake.
+but when you're free you still probably won't do it--just for a different reason. you won't do it, but you could. you could in the sense that you could follow yourself anywhere. you're not always wondering if this is the right place for you, because you've learned to live so that wherever you go IS the right place. but it's not the place that makes it right. it's right because of how you arrived there. you arrived there by being yourself. 
 
-when you don't have to be anyone, who is left?
+this particular art is an improvisation which continues to slip dissonant notes into itself. Dogen said: "a zen master's life is one continuous mistake." What do you think that means? How does a free person wander from mistake from mistake? Seneca once said: "if one does not know to which port one is sailing, no wind is favorable." Shortly thereafter, Seniam replied: "if one does not know to which port one is sailing, any wind might do."
+
+all this to say, when you don't have to be anyone, who is left?
 
 a funny thing popped into my head today. a Karen arrived and demanded angrily--"just who do you think you are?"
 
