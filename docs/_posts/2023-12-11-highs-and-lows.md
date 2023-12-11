@@ -16,7 +16,7 @@ layout: post
 
 "Such an approach will rarely find real compatibility," Jion said. "A connection between two masks goes nowhere." 
 
-Sozan paused and thought. "Of course, when I used to draw self-worth and validation from my relationships with women (or lack thereof), that made me afraid of egoistic loss and gain when it came to dating. Talking to any woman I might be interested in was a little scary, because I already had something at stake: my self-image. I had to work on freeing myself from those ego games and other kinds of conditioning too before my body was capable of giving clear signals."
+Sozan paused and thought. "Of course, when I used to draw self-worth and validation from my relationships with women (or lack thereof), that made me afraid of egoistic loss and gain when it came to dating. Talking to any woman I might be interested in was a little scary, because I already had something at stake: my self-image. Or maybe it was being alone (failure) vs. being in a relationship (success) that was at stake, before I felt like I could be complete alone. In any case there were other things at stake. I had to work on freeing myself from those things before my body was capable of giving clear signals about my connection to another person."
 
 "Remember, we've talked about your tendency towards infatuation and limerence. You even wrote about it once. What did you write?"
 
